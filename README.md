@@ -1,16 +1,15 @@
-### Hi there 👋
+### Bài cào Online
 
-<!--
-**baicaoonline/baicaoonline** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Baicaoonline.com - Link chơi bài cào online cho người mới - Luật chơi và cách chơi bài cào kiếm tiền online cực kì dễ dàng
 
-Here are some ideas to get you started:
+- Địa chỉ: 80/22 Nguyễn Huệ, Q1, TP Hồ Chí Minh
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- SDT: 0876663245
+
+http://baicaoonline.com/
+
+https://baicaoonline.wordpress.com/
+
+https://www.tumblr.com/baicaoonline
+
+https://www.pinterest.com/baicaoonline/
